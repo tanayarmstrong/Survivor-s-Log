@@ -1,6 +1,6 @@
 # Survivor's Logs:
 
-> --edit--
+> A Survivor's Log found after 3rd World War.
 
 ## Author:
 
